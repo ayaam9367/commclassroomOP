@@ -1,3 +1,3 @@
 # commclassroomOP
 
-Kunal Kushwaha learing github is amazing..
+Kunal Kushwaha learing github is truly amazing..
